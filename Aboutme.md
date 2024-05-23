@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Geeknotfound404
+- 👀 I’m interested in Machine learning,Data analystics,Python,Generative Ai and many more
+- 🌱 I’m currently learning at  Nothing due to my studyies in school a certificate or other level
+- 💞️ I’m looking to collaborate on New gits based on ml,data realted stuff
+- 📫 How to reach me You can mail me at my email -ashirwads69@gmail.com
+- 😄 Pronouns: Im a guy He
+- ⚡ Fun fact: I only sleep 1 day in week hehehe
